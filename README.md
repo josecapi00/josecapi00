@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @josecapi00
 - 👀 I’m interested in Physics
-- 🌱 I’m currently learning Nuclear Physics
+- 🌱 I’m currently learning Plasma Physics
 - 📫 How to reach me: joancapitan@gmail.com
 - 😄 Pronouns: he/him
 
